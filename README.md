@@ -1,2 +1,0 @@
-# FilippAkbas.github.io
-FilippAkbas
